@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-To write and many pleaſe is much,to pleaſe not write, is paine:Than rather write and pleaſe the goodCOLVMNA GLORIAE VIRTVSblazon or coat of arms
+COLVMNA GLORIAE VIRTVSblazon or coat of arms
 1. CLARISSIMO ƲIRO, AC BONARVM LITERARVM SVMMO PATROno Domino ſuo, Domino Georgio Peckham equiti aurato, Ioannis Higgini, de huius operis dedicatione EPISTOLA.
 
 1. To the Reader.
